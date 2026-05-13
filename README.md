@@ -40,7 +40,7 @@
 
 $\small\color{#6b73db}{\textsf{HELLOOO!!!}}$
 
-$\small\color{#6b73db}{\textsf{my name is will, eric or azi(raphale) mainly varying with what kin of my own I am presenting myself with.}}$
+$\small\color{#6b73db}{\textsf{my name is will, gabriel, eric or azi(raphale) mainly varying with what kin of my own I am presenting myself with.}}$
 
 $\small\color{#6b73db}{\textsf{My pronouns consistantly stay masculine, any feminine terms will be called out, and I will state that I am uncomfortable.}}$
 
