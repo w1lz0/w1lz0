@@ -44,7 +44,17 @@ $\small\color{#6b73db}{\textsf{my name is will, gabriel, eric or azi(raphale) ma
 
 $\small\color{#6b73db}{\textsf{My pronouns consistantly stay masculine, any feminine terms will be called out, and I will state that I am uncomfortable.}}$
 
-$\small\color{#decda0}{\textsf{And just so you know, this the account I just use to follow people my main is @fourthdoctor or @mobiusMmobius}}$
+$\small\color{#decda0}{\textsf{And just so you know, this the account I ONLY use to follow people,-}}$
+
+
+$\small\color{#decda0}{\textsf{-or use to present my good omens ponies on pt my main is @fourthdoctor or @mobiusMmobius}}$
+
+
+
+
+
+
+
 
 
 
